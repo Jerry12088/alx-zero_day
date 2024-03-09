@@ -1,2 +1,2 @@
-Aam greatfull of the milestone am about to make in software development career.am ultimately sure am doing my best an hope that my fate or something is somehow tied to this .
-My the Almighty Go take mw through this am glad and very gratffull.
+Aam greatfull for the milestone am about to make in software development career.am ultimately sure am doing my best and hope that my fate or something is somehow tied to this .
+My the Almighty God take me through this am glad and very gratffull.
